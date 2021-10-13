@@ -1,1 +1,0 @@
-# Cheetah-Token-CHTT
